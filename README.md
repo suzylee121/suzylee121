@@ -2,8 +2,7 @@
 
 - Hi, I’m @suzylee121
 - disini kumpulan project-project yang udah aku buat
-
-- jangan lupa kunjungi
+  jangan lupa kunjungi akun sosial aku di :
 - instagram : @behemots_111
 - facebook : xey lee
 
